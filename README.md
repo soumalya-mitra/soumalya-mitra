@@ -4,7 +4,6 @@
 Email Me 👉 ✉️ **soumalyamitra2007@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🌱 **I’m currently learning:** C Language
-- 👯 **I’m looking to collaborate on:** CHATBOT
 - 🤔 **I’m looking for help with:** AI
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** soumalyamitra2007@gmail.com
